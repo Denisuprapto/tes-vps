@@ -1,2 +1,2 @@
-# SCVPN @DotyCat
+# Denisuprapto @DotyCat
 BOT IPVPS REGESTERATION REQ
